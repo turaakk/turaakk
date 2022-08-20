@@ -1,1 +1,1 @@
-- 👋 Hi, I’m [@turaakk](t.me/turaa_q)
+- 👋 Hi, I’m @turaakk
