@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @turaakk
+- t.me/turaa_q
