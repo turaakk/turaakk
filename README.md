@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @turaakk
+[turaa](https://turaa.vercel.app)
